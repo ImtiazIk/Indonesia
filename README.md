@@ -5,7 +5,7 @@ Watch The Tutorial
 
 Video Link
 
-coming soon...
+https://youtu.be/F8-DJkbra4w
 
 Use These Awessome Commands and Enjoy..
 
